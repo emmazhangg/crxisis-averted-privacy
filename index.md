@@ -77,7 +77,7 @@ Usage Data: Anonymous usage statistics may be retained for app improvement purpo
 Contact Information
 If you have questions about this Privacy Policy, please contact us at:
 
-Email: [Your Email Address] Support: Available through the App Store
+Email: cRxisisaverted@gmail.com Support: Available through the App Store
 
 Compliance
 This app complies with:
